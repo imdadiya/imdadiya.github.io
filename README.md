@@ -1,2 +1,2 @@
-# imdadiya.github.io
+# imd.github.io
  
